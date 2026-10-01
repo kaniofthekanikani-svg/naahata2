@@ -1,2 +1,3 @@
 # naahata2
 haanatahoasatahaahahaasatahaasatahaasaahaasoahutaihaa
+AIで作ったやつ突っ込むとこ
